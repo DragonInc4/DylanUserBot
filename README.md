@@ -6,7 +6,7 @@
 🌐 **Сайт / регистрация:** [dyln.k.vu](https://dyln.k.vu)  
 🤖 **Подключить юзербота:** [Dylan](https://t.me/zhes19)  
 😁 **Тг ссылки:** [Отзывы](https://t.me/dylnrep) | [Тг канал](https://t.me/dylnuser) | [Новости](https://t.me/dylnews) | [Чат проекта](https://t.me/dyln4at)  
-
+AI BY POLLINATIONS
 
 ---
 
